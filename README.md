@@ -1,1 +1,1 @@
-# lecture-6
+გ# lecture-6
